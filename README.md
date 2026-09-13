@@ -1,3 +1,4 @@
-# sayuuz-o_o
+maomaos diary.
 dni: racists,homophobes,
-int: genshin fans,etm fans,hades fans
+im sorry to those i hurt.
+They know who they are especially him. i miss you if you will ever see this
