@@ -9,3 +9,4 @@ im mental ill so please be careful around me i get angry easily, make sure to re
 im a maomao kinnie if its not obvious
 c+h is free but most of the time im afk and i see whispers so whisper to int,,!!!
 
+![image alt](https://github.com/redribbonnssx/sayuuz-o_o/blob/e4253a1677518e641631ab7ecc80a48511abd8db/IMG_0313.jpeg)
